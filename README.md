@@ -1,4 +1,4 @@
- salam kele
+ zeng ele zeng ele mene
 
-eleykime salam balaca
+
 
